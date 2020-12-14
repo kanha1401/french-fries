@@ -1,0 +1,1 @@
+First cut the potato into a cuboidial shape.Second pour the into a frying pan and deepfry the potato on a medium flame.Third and the last, take out the potatoes pour some salt over it and Enjoy.
